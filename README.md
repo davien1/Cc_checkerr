@@ -1,1 +1,1 @@
-Bizzat kodladığım kredi kartı checki yarın 12.01 de paylaşıcam.
+Bizzat kodladığım kredi kartı checki 50 starda paylaşılır
